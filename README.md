@@ -1,2 +1,0 @@
-# desvi-social
-pagina 
